@@ -6,7 +6,7 @@
 - you probably saw me in pony town, so hii!!!
 - i dont have a dni, so just dont be a weirdo.
 
-  ![image](https://github.com/user-attachments/assets/3c889c2d-8e28-418f-a40f-f1371f989dcf) <- look at her
+  ![5f4541b33c545d3fbd9a0dc30ad58398](https://github.com/user-attachments/assets/2ce73356-2901-48f4-a65e-e67415ec1cf8) <- look at her.
 
 
   
