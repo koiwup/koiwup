@@ -2,7 +2,7 @@
    ☆ **ABOUT ME**  
    
 - i usually dont interact first, but feel free to interact!
-- i go by he/him and they/them, but i prefer he/him.
+- he/him ONLY.
 - you probably saw me in pony town, so hi!!!
 - i dont have a dni, so just dont be a weirdo.
 
