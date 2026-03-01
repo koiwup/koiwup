@@ -1,4 +1,4 @@
-##   *⋆｡𖦹°⭒˚｡⋆ . . . KOI*
+##   *KOI*
    ☆ **ABOUT ME**  
    
 - i usually dont interact first, but feel free to interact!
